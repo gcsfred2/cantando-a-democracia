@@ -10,6 +10,9 @@ Contribua enviando sua letra! Para tanto, envie um email para kfxifkkfme3f arrob
 
 Ajude também a divulgar este repositório! Basta enviar um link para essa página.
 
+Visite a FIBRA-Frente Internacional Brasileira Contra o Golpe e Pela Democracia:
+https://www.facebook.com/groups/BrasileirosnoMundoContraoGolpe
+
 -------
 
 "Cantando a democracia" is a place with music that support democracy in Brazil and hence reject authoritarism.
@@ -21,3 +24,5 @@ Do contribute sending us your lyrics! Send an email to kfxifkkfme3f arroba altma
 
 Help us also sharing this repository! You just need to share the link to this page.
 
+Visit FIBRA-Frente Internacional Brasileira Contra o Golpe e Pela Democracia:
+https://www.facebook.com/groups/BrasileirosnoMundoContraoGolpe
